@@ -1,0 +1,3 @@
+-  Hi, I’m Tavini Perera❤️
+-  I’m interested in Information Technology💻 and Music🎧
+-  I’m currently an undergraduate👩‍🎓
